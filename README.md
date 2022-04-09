@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @am1ths
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning JS, Python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in stopping war on Ukraine
+- 🌱 I’m currently crying and dying inside
+- 💞️ I’m looking for freedom
 
 <!---
 am1ths/am1ths is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
