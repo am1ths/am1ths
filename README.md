@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @am1ths
-- 👀 I’m interested in stopping war on Ukraine
+- 👀 I’m interested in stopping war in Ukraine
 - 🌱 I’m currently crying and dying inside
 - 💞️ I’m looking for freedom
 
