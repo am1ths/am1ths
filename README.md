@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @am1ths
 - 👀 I’m interested in stopping war in Ukraine
 - 🌱 I’m currently crying and dying inside
-- 💞️ I’m looking for freedom
+- 💞️ I want freedom for all of us!
 
 <!---
 am1ths/am1ths is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
